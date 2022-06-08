@@ -1,0 +1,2 @@
+# udin-resolusi
+PENYIMPANAN GABUTTTTT
